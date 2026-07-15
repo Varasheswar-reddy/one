@@ -1,5 +1,2 @@
 # one
 
-dhdvyfdgf
-xdhdvhdbdd
-dhdcbvdghc
